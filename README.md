@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @adeyinfam
 - 👀 I’m interested in Cloud tools.
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning as much as I can aha.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Email me on adeyinfam@gmail.com
 
